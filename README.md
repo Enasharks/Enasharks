@@ -6,4 +6,4 @@
 
 ୭˚. ᵎᵎ Ghost band ~ Rob Zombie ~ ICP ~ SOAD 𐙚⋆°｡⋆♡
 
--`♡´- might make a cardd or sm DUNNO ! ദ്ദി ˉ͈̀꒳ˉ͈́ )✧
+-`♡´- might make a cardd or sm DUNNO ! ૮꒰ྀི∩´ ᵕ `∩꒱ྀིა
