@@ -4,6 +4,6 @@
 
 𖦹°‧ i kin Ghiaccio ~ Trish Una ~ Sorta Melone !
 
-୭˚. ᵎᵎ Ghost band ~ Rob Zombie ~ ICP ~ SOAD 𐙚⋆°｡⋆♡
+୭˚. ᵎᵎ Ghost band ~ Rob Zombie ~ ICP ~ SOAD ฅ^ >ヮ<^₎
 
 -`♡´- might make a cardd or sm DUNNO ! ૮꒰ྀི∩´ ᵕ `∩꒱ྀིა
