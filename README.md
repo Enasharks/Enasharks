@@ -1,6 +1,6 @@
 𖹭 melone! ~ Ghiaccio ! ~ ROB ZOMBIE !!! ~ my gf ana ⸜(｡˃ ᵕ ˂ )⸝♡
 
-.☘︎ ݁˖ dni Mamahuevo ~ Melone x Ghiaccio ໒꒰ྀིっ˕ -｡꒱ྀི১
+.☘︎ ݁˖ dni Mamahuevo ~ Melone x Ghiaccio ~ anyones name that start with T (targeted) ໒꒰ྀིっ˕ -｡꒱ྀི১
 
 𖦹°‧ i kin Ghiaccio ~ Trish Una ~ Sorta Melone !
 
