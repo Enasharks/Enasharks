@@ -7,3 +7,5 @@
 ୭˚. ᵎᵎ Ghost band ~ Rob Zombie ~ ICP ~ SOAD ฅ^ >ヮ<^₎
 
 -`♡´- might make a cardd or sm DUNNO ! ૮꒰ྀི∩´ ᵕ `∩꒱ྀིა
+
+- can mostly find me by safe! always melone !!!
