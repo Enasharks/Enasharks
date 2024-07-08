@@ -1,6 +1,6 @@
 𖹭 melone! ~ Ghiaccio ! ~ ROB ZOMBIE !!! ~ my gf ana ⸜(｡˃ ᵕ ˂ )⸝♡
 
-.☘︎ ݁˖ dnis:  Mamahuevo for good reasons. ~ Melone x Ghiaccio ~ anyones name that start with T (targeted) for a good reason. ໒꒰ྀིっ˕ -｡꒱ྀི১
+.☘︎ ݁˖ dnis:   ~ Melone x Ghiaccio SHIPPERRSS DNIDNIDNIDNDINDINDINDI ໒꒰ྀིっ˕ -｡꒱ྀི১
 
 𖦹°‧ i kin Ghiaccio ~ Trish Una ~ Sorta Melone !
 
