@@ -1,9 +1,5 @@
-𖹭 melone! ~ Ghiaccio ! ~ ROB ZOMBIE !!! ~ my gf ana ⸜(｡˃ ᵕ ˂ )⸝♡
+I LOOOVVVEE ANNNNNANANANANANNA <3
 
-.☘︎ ݁˖ dnis:   ~ Melone x Ghiaccio SHIPPERRSS DNIDNIDNIDNDINDINDINDI ໒꒰ྀིっ˕ -｡꒱ྀི১
+READ MY CARRD !
 
-𖦹°‧ i kin Ghiaccio ~ Trish Una ~ Sorta Melone !
-
-୭˚. ᵎᵎ Ghost band ~ Rob Zombie ~ ICP ~ SOAD ฅ^ >ヮ<^₎
-
-- can mostly find me by safe! always melone !!!
+can always find me as melone or formaggio (mostly melone)
