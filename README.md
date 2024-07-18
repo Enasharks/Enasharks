@@ -1,12 +1,5 @@
-━━━━━━━━━━━━━━━
-┊┊┊
-┊┊┊ ❁ཻུ۪۪ ━ ❝
-┊┊┊   [Where; do we go? Where the the river is runing slow. Where; do we go? Where the cats kill one by one.] - YAELOKRE
-┊┊⋆                   ❞
-❀┊
-︒✯⋅
-.         °         · 　　　　 ·　.           •                °
-.              　 ⋆  　　　 ˚  　✧         *               .
-.     ˚               ✧　       * 　　 . 　　°       .          .
-.        　  .              °          .                  .
-⑅· ˚ ༘ ♡
+⠀⠀꒰⠀ana ෆ 07.06.24
+  ⠀   
+       ⠀ྀི Where; do we go? when the rivers running slow. ྀི
+       
+       ︶⊹︶︶୨୧︶︶⊹︶
