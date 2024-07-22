@@ -4,4 +4,6 @@
     
    farted
     
-i know something that they dont know ! ><
+i know something that they dont know ! >< 
+
+hey! so.. this is insane but..
