@@ -1,6 +1,6 @@
 ⠀⠀꒰⠀ana ෆ 07.06.24
   ⠀   
-       ⠀ྀི Where; do we go? when the rivers running slow. ྀི - yaelokre
+       ⠀ྀི I need a bitch, like cherry pie. I need a bitch like Bushwick Bill need a eye! ྀི - Insane Clown Posse 
     
    farted
     
