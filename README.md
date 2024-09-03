@@ -1,6 +1,6 @@
 ⠀⠀꒰⠀ana ෆ 07.06.24
   ⠀   
-       ⠀ྀི No more; Mr Nice Guy! No more; Mr Clea-ea-eaaan!! ྀི - Alice Cooper <3
+       ⠀ྀི No more; Mr Nice Guy! No more; Mr Clea-ea-ea-eaaan!! ྀི - Alice Cooper <3
     
    farted
     
