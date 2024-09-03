@@ -1,6 +1,6 @@
 ⠀⠀꒰⠀ana ෆ 07.06.24
   ⠀   
-       ⠀ྀི I need a bitch, like cherry pie. I need a bitch like Bushwick Bill need a eye! ྀི - Insane Clown Posse 
+       ⠀ྀི No more; Mr Nice Guy! No more; Mr Clea-ea-eaaan!! ྀི - Alice Cooper <3
     
    farted
     
