@@ -1,4 +1,4 @@
-please view my prns page, and carrd plus my strawpage !! (strawpage is coming soonnnsss)
+please view my prns page, and carrd plus my strawpage !!
 
 ghost, rob zombie, alice cooper, KMFDM, marilyn manson, mindless self indulgence, rammstein>>
   ⠀   
